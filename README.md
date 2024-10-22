@@ -1,0 +1,1 @@
+Dedicated and results-oriented backend developer with 5+ years of experience in building robust and scalable web applications. Passionate about continuous learning and staying up-to-date with the latest technologies and industry trends.
